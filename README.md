@@ -7,7 +7,7 @@
 
   
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤread my [strawpage](https://melvncholy.straw.page/) & sign it if you'd like
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤread my [strawpage](https://melvncholy.straw.page/) & sign my [atabook](https://amamiya.atabook.org/)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h completely okay don't be shy _!!!!!_
 
