@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="500" src="https://media.tenor.com/v1_7HCgqehgAAAAj/an-shiraishi-project-sekai.gif" alt="hi">
+    <img width="500" src="https://www.sekaipedia.org/wiki/File:An_School_Uniform_chibi.png#/media/File:An_School_Uniform_chibi.png"  alt="hi">
 </p>
 
 <p align="center">
