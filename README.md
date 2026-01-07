@@ -1,5 +1,5 @@
 <p align="center">
-    <img width="500" src="https://www.sekaipedia.org/wiki/File:An_School_Uniform_chibi.png#/media/File:An_School_Uniform_chibi.png"  alt="hi">
+    <img width="500" src="https://64.media.tumblr.com/fd4ae5a8efcde88723ca6af87235e367/65c7d1f1feccb10f-08/s1280x1920/00bfb99cb4361089679e60f433967e968c413d40.png"  alt="hi">
 </p>
 
 <p align="center">
