@@ -1,15 +1,14 @@
-<p align="center">
+<div align="center">
     <img width="350" src="https://64.media.tumblr.com/0cae973b8088a8f7336ac9c665d49a55/f30ec58cb4d714b1-d4/s1280x1920/fa41f01c5743b07216d8cc58f7872a9324cfec94.png"  alt="hi">
 </p>
 
-<p align="center">
-  
 
   
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤread my [strawpage](https://melvncholy.straw.page/) & sign my [atabook](https://amamiya.atabook.org/)
+  
+read my [strawpage](https://melvncholy.straw.page/) & sign my [atabook](https://amamiya.atabook.org/)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h completely okay don't be shy _!!!!!_
+c+h completely okay don't be shy _!!!!!_
 
 
 <!--
